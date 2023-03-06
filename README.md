@@ -1,1 +1,1 @@
-[![Music is my radar](http://static.simpledesktops.com/uploads/desktops/2021/03/19/headysmiley.png.625x385_q100.png)]([http://www.youtube.com/watch?v=49FeYz2JpHo](https://www.youtube.com/watch?v=49FeYz2JpHo) "Music is my radar")
+Music [is](https://www.youtube.com/watch?v=49FeYz2JpHo) my radar.
